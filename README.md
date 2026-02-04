@@ -4,7 +4,6 @@ Este proyecto se encarga de manejar los planes de la liga de la justicia
 
 
 ## Notas
-akgjksaljglkasjga
-askjglaks
-kglasjkg
-akgjaslk
+agsgaa
+gasga
+agsg
